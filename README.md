@@ -1,4 +1,4 @@
-## Olá! Eu sou o Gabriel batista243 
+## Olá! Eu sou o Gabriel batista
 
 - 👀 I’m interested in Estágio 
 
